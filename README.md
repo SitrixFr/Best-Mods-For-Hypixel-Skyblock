@@ -1,2 +1,1 @@
-# Best-Mods-For-Hypixel-Skyblock
-the best mods for hypixel skyblock, the only good ones no rats n stuff
+Just a few mods that are really good for hypixel skyblock n stuff
